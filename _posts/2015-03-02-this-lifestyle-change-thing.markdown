@@ -13,11 +13,17 @@ So far here are some changes  I've been playing with:
 
 Diet
 -switched to generally low GI diet
+
 -switched white or highly refined carbs to lower glycemic load alternatives (Black Rice instead of White)
+
 -No more sugar in my coffee
+
 -Limiting coffee to once per day
+
 -Avoiding inflammatory food that might disrupt my already disrupted hormones like dairy
+
 -Became suspicious of things that list vegetable oils in the ingredients
+
 -Feel weird about eating out because they probably cook everything in cheap veggie oil
 -Experimenting with resistant starch (potato starch)
 -Cut out soda since January and have stopped craving them finally. If I feel like having a flavored drink, I drink green tea
