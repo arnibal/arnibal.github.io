@@ -11,39 +11,32 @@ Now the slightly harder part. Since I'm now off the synthetic estrogen and proge
 
 So far here are some changes  I've been playing with:
 
-Diet
--switched to generally low GI diet
-
--switched white or highly refined carbs to lower glycemic load alternatives (Black Rice instead of White)
-
--No more sugar in my coffee
-
--Limiting coffee to once per day
-
--Avoiding inflammatory food that might disrupt my already disrupted hormones like dairy
-
--Became suspicious of things that list vegetable oils in the ingredients
-
--Feel weird about eating out because they probably cook everything in cheap veggie oil
--Experimenting with resistant starch (potato starch)
--Cut out soda since January and have stopped craving them finally. If I feel like having a flavored drink, I drink green tea
--When craving sugar started choosing the lesser evil (eating a banana instead of that Conti's leche flan D:)
--Only drink wine and beer if it's free
--Learned to cook
+Diet  
+-switched to generally low GI diet  
+-switched white or highly refined carbs to lower glycemic load alternatives (Black Rice instead of White)  
+-No more sugar in my coffee  
+-Limiting coffee to once per day  
+-Avoiding inflammatory food that might disrupt my already disrupted hormones like dairy  
+-Became suspicious of things that list vegetable oils in the ingredients  
+-Feel weird about eating out because they probably cook everything in cheap veggie oil  
+-Experimenting with resistant starch (potato starch)  
+-Cut out soda since January and have stopped craving them finally. If I feel like having a flavored drink, I drink green tea  
+-When craving sugar started choosing the lesser evil (eating a banana instead of that Conti's leche flan D:)  
+-Only drink wine and beer if it's free  
+-Learned to cook  
 
 Exercise:
--Try to get 3 hours resistance work per week 
--If I'm not in a hurry, stopped taking Ikot and Toki and I walk to any point in UP now
+-Try to get 3 hours resistance work per week   
 
 Sleep:
--Try to get 7.5 hours per day
--Trying not to nap so I don't sleep late
+-Try to get 7.5 hours per day  
+-Trying not to nap so I don't sleep late  
 
 Everyday things:
-- Try to minimize exposure to xenoestrogens
-- Become paranoid and wary about plastic cooking utensils 
-- Switched to a more natural laundry powder (the smell of normal laundry soap now nauseates me. I can't borrow anything from my siblings who still use them)
-- Switched to stainless steel baunan and bottle
+- Try to minimize exposure to xenoestrogens  
+- Become paranoid and wary about plastic cooking utensils  
+- Switched to a more natural laundry powder (the smell of normal laundry soap now nauseates me. I can't borrow anything from my siblings who still use them)  
+- Switched to stainless steel baunan and bottle  
 
 I've gotten rid of the constant brain fog when I cut out sugar, and gained more clarity when I tried the potato starch. See, I can even write things like these now! I'm still experimenting with what I can eat. I pay closer attention to how I feel after eating certain foods and try to eliminate things my face reacts to. I guess that's a good thing about my acne, it has turned into some weird-food-reaction indicator. I ate some beef the other day and it did not like it. Blared up all red and itchy. Thanks face. I guess you were warning me it was some CAFO meat chock-full of hormones that I should never eat again. Seriously considering if I can go pescetarian now, since I can't afford organic beef or pork while on a student budget. (I've been allergic to chicken since childhood.)
 
