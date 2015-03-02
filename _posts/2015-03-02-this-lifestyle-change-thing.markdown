@@ -13,7 +13,7 @@ So far here are some changes  I've been playing with:
 
 Diet:  
 -switched to generally low GI diet  
--switched white or highly refined carbs to lower glycemic load alternatives (Black Rice instead of White)  
+-switched white or highly refined carbs to lower glycemic load alternatives (black rice instead of white rice)  
 -No more sugar in my coffee  
 -Limiting coffee to once per day  
 -Avoiding inflammatory food that might disrupt my already disrupted hormones like dairy  
