@@ -11,7 +11,7 @@ Now the slightly harder part. Since I'm now off the synthetic estrogen and proge
 
 So far here are some changes  I've been playing with:
 
-Diet  
+Diet:  
 -switched to generally low GI diet  
 -switched white or highly refined carbs to lower glycemic load alternatives (Black Rice instead of White)  
 -No more sugar in my coffee  
@@ -25,14 +25,14 @@ Diet
 -Only drink wine and beer if it's free  
 -Learned to cook  
 
-Exercise:
+Exercise:  
 -Try to get 3 hours resistance work per week   
 
-Sleep:
+Sleep:  
 -Try to get 7.5 hours per day  
 -Trying not to nap so I don't sleep late  
 
-Everyday things:
+Everyday things:  
 - Try to minimize exposure to xenoestrogens  
 - Become paranoid and wary about plastic cooking utensils  
 - Switched to a more natural laundry powder (the smell of normal laundry soap now nauseates me. I can't borrow anything from my siblings who still use them)  
