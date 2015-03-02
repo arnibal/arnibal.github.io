@@ -23,7 +23,7 @@ Diet:
 -Cut out soda since January and have stopped craving them finally. If I feel like having a flavored drink, I drink green tea  
 -When craving sugar started choosing the lesser evil (eating a banana instead of that Conti's leche flan D:)  
 -Only drink wine and beer if it's free  
--Learned to cook  
+-Learned to cook and take healthier meals to school
 
 Exercise:  
 -Try to get 3 hours resistance work per week   
