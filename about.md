@@ -4,9 +4,4 @@ title: About
 permalink: /about/
 ---
 
-This is a mid-20s girl-woman's thought repository
-
-Hmmm. That rhymes with suppository. 
-Maybe this is my thought suppository to the world?  
-Thoughts up that and into your bloodstream?
-Yup. I'm gross like that haha.
+All that extra sugar must have been clouding my brain. Now that I've cut soda from my diet and try to avoid sugary treats, words fill up the void in my head. I have to pour them out or my head might burst from the word pressure.
