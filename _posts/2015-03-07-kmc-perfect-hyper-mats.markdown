@@ -2,7 +2,8 @@
 layout: post
 title:  "KMC Perfect Hyper Mats"
 date:   2015-03-07 10:54:20
-categories: tabletop, things
+categories: tabletop
+tags: [tabletop, things]
 ---
 
 <i>I'm still learning how to use Jekyll. I need to get the hang of posting pictures so this is a picture post. Sorry for the blurry pictures. </i>
