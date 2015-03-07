@@ -6,7 +6,7 @@ categories: PCOS
 tags: [PCOS, life, experiments, parkour]
 ---
 
-I was diagnosed with PCOS and prescribed birth control pills to manage my symptoms when I was 23. PCOS isn't really a life threatening condition, but it's a metabolic syndrome with symptoms that are SUPER ANNOYING. Later, I found out that pills (I was on Yaz) were just masking my symptoms and not really managing the cause of my PCOS. I did not feel like myself when I was on them and did not see myself gulping them down everyday in the future. What if I have to stop taking them when I'm older because of the link to cardiovascular risk? I didn't think I was doing myself a favor by being dependent on medication. So I weaned myself off slowly last year (took me 3 months) and at 26, I'm pill-free again. 
+I was diagnosed with PCOS and prescribed birth control pills to manage my symptoms when I was 23. PCOS isn't really a life threatening condition, but it's an endocrine disorder with symptoms that are SUPER ANNOYING. Later, I found out that pills (I was on Yaz) were just masking my symptoms and not really managing the cause of my PCOS. I did not feel like myself when I was on them and did not see myself gulping them down everyday in the future. What if I have to stop taking them when I'm older because of the link to cardiovascular risk? I didn't think I was doing myself a favor by being dependent on medication. So I weaned myself off slowly last year (took me 3 months) and at 26, I'm pill-free again. 
 
 <br>
 
