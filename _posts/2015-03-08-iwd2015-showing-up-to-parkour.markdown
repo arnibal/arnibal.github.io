@@ -36,7 +36,7 @@ So I was happy to attended our first female-focused session for PKPH Bansay toda
 Some of it was as I imagined. We were new, built more similarly, and most of us had little athletic background. It felt somewhat reassuring that I wasn't the only one having a hard time with tucks. I wasn't the only one with hurt shoulders from practicing rolls. It was refreshing to look around and see facial expressions mirroring mine.  
 <br>
 
-Some of the differences led to realizations on how I view or react during training.  
+Some of the differences led to realizations on how I view or react to situations during training.  
 <br>
 
 When I was having difficulty with a drill, I felt less frustrated about it. I found it easier to ask for help, even repeating precisions to ask someone what went wrong. In the past whenever I was reassured by leads that they also took time to get a skill right, there was still a lot of self-doubt because I was the only one not getting it right! But this time around, my group shared in the struggle, so I understood better.  
