@@ -9,7 +9,7 @@ It just sunk in how conditioning is such a big chunk of parkour. It has also sun
 
 I hated the playground days. I felt extremely exposed whenever I do them. So along the way I fell off and did some other bullshit conditioning at home. Over the weekend, I somehow convinced myself that going out alone to train in a public space is a necessary part of parkour. 
 
-So I tried again today. I started with inclined push-ups near the see-saws and rows near the monkey bars. An old man came over to use the monkey bars for exercise but he was far enough from my space that I could still proceed with my dips. I was going through my last set when another old man came over to talk to his friend at the monkey bars.
+So I tried again today. I started with inclined push-ups near the see-saws and rows near the monkey bars. An old man came over to use the monkey bars for exercise but he was far enough from my space that I could still proceed with my reps. I was going through my last set when another old man came over to talk to his friend at the monkey bars.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<i>"Oh, ang galing naman ng kasama mo, nag e-exercise."</i>
 
@@ -34,4 +34,10 @@ They say parkour is also about reclaiming urban space. I recall a past lecture o
 
 I'm going to report unpeople having their dogs use the playground as a litter box. But I feel mildly defeated. Should I have said something to the couple? Or politely explained what I was doing to an annoying old man? Should I bring plastic bags and our extra pooper scooper next time and lend it to people? What would Epictetus have done? Is this the social side of being strong to be useful?
 
-Game is hard.
+Game is hard.  
+
+ 
+<br>    <br>    <br> 
+
+EDIT 03/10/2015:  <br>
+Well today was playground day. Game is NOT hard. Gawd I want to delete this post. Let this serve as an example of what happens when I miss my weekend stoic meditation. What would Epictetus have done? He would have side-eyed me. 

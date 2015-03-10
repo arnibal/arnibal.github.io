@@ -4,4 +4,4 @@ title: About
 permalink: /about/
 ---
 
-All that extra sugar must have been clouding my brain. Now that I've cut soda from my diet and try to avoid sugary treats, words fill up the void in my head. I have to pour them out or my head might burst from the word pressure.
+All that extra sugar must have been clouding my brain. Now that I've cut soda from my diet and try to avoid sugar in general, words keep flooding my head. This is where I pour em out. To keep. My brain. From. Exploding. 
