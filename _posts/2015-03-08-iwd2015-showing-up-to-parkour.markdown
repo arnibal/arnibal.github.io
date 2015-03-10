@@ -50,7 +50,7 @@ There was also this subtle shift in mindset in doing it right vs not doing it wr
 <br>
 
 
-It was different but a really fun session! And I learned a lot, not just in skill but in the way I view training. But perhaps because it was an introductory bansay, I'd have to agree when Chela mentioned that it was milder than the usual training session. I missed the fear that usually comes with bansay, and the elation that comes after conquering it. Maybe because I've already gotten over some of the little fears that my new sisters in parkour had just conquered today. At the end of the day, I feel I can learn a lot from both types of sessions. Training with other practitioners, regardless of gender, but of other skill levels also challenges you and exposes you to the possibilities of parkour. So also I hope to see my fellow traceuses in the regular bansay sessions.  
+It was different but a really fun session! And I learned a lot, not just in skill but in the way I view training. But perhaps because it was an introductory bansay, I'd have to agree when Chela mentioned that it was milder than the usual training session. I missed the fear that usually comes with bansay, and the elation that comes after conquering it. Maybe because I've already gotten over some of the little fears that my new sisters in parkour had just conquered today. At the end of the day, I feel I can learn a lot from both types of sessions. Training with other practitioners, regardless of gender, but of other skill levels also challenges you and exposes you to the possibilities of parkour. So I also hope to see my fellow traceuses in the regular bansay sessions.  
 
 <br>
 
