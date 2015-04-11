@@ -3,6 +3,7 @@ layout: post
 title:  "IWD2015: Showing up to Parkour"
 date:   2015-03-08 20:16:20
 categories: Traceuse
+comments: true
 tags: [traceuse, parkour, womanhood]
 ---
 
