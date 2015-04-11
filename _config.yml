@@ -11,7 +11,7 @@ url: "http://yourdomain.com" # the base hostname & protocol for your site
 comments :
   provider : disqus
   disqus :
-    short_name : harabe
+    short_name : arnibal
 
 
 # Build settings
